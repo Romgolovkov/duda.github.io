@@ -1,2 +1,0 @@
-# duda.github.io
-DuDa
